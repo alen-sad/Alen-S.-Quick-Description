@@ -4,6 +4,6 @@
 
 - 🌱 I’m currently learning ... front end development and eventually transitioning to back end to get an good understanding of both.
 
-- 💞️ I’m looking to collaborate on ... websites, applications, or any other kind of project!
+- 👋 I’m looking to collaborate on ... websites, applications, or any other kind of project!
 
 - 📫 How to reach me ... alensadikoski1@live.com
