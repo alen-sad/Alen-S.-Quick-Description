@@ -6,4 +6,4 @@
 
 - 👋 I’m looking to collaborate on ... websites, applications, or any other kind of project!
 
-- 📫 How to reach me ... alensadikoski1@live.com
+- 📫 If you want to see examples or reach me ... alensadikoski1@live.com
